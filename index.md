@@ -75,6 +75,8 @@ I am patient enough to teach people from 0. I have helped a Belarusian guy from 
 
 Any video conference app will work. I am also running a language exchange server using Discord. There are a few Russian native speakers, one Japanese native speakers and two Americans. Feel free to message me to learn more!
 
+### Frequently asked questions
+
 Q. We don't know each other, I am shy to do audio/video calls.
 A. Chances are, we will never meet. We are practicing over the Internet, I am not part of your everyday Environment. The practical chance of meeting me without your own intention is 0. I don't practice chatting for language exchange so probably we will never become more familiar with each other. Just reflect on your negative feeling, and realize what is the real source of your fears. That will help me to understand that the fear has nothing to do with me. 
 
