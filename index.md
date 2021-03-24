@@ -67,10 +67,9 @@ Most people gave me positive feedback about my English skills and I have several
 
 ## Chinese/Mandarin
 
-+ I have lived and worked for major corporates back at the U.S.
-  Mandarin is my mother tongue and I can speak very well.
-+ I am patient enough to teach people from 0.
-  I have helped a Belarusian guy from b1 to b2. It takes patience, but you can learn it and I can help you.
++ Mandarin is my mother tongue and I can speak very well.
+
+I am patient enough to teach people from 0. I have helped a Belarusian guy from b1 to b2. It takes patience, but you can learn it and I can help you.
  
 ### Software
 
