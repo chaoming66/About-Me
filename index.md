@@ -2,12 +2,11 @@ Hi there! I am Michael from Taiwan. I like learning languages, and I often pract
 
 ## A short summary
 
-+ *Everyone has their own way of learning*. I am happy to teach you Russian/English using the approach of *your choice*. Please teach me Mandarin/Japanese using the approach which works for me. We might learn differently and that's ok.
++ *Everyone has their own way of learning*. I am happy to teach you Chinese/English using the approach of *your choice*. Please teach me Russian/Japanese using the approach which works for me. We might learn differently and that's ok.
 
-+ *I want to learn how to speak*. That's why I ask to make audio or video calls. If you want to learn from me by chatting, I'll be happy to spend time chatting. But please spend the same amount of time talking to me.
++ *I want to learn how to speak*. That's why I ask to make audio or video calls. If you want to learn from me by chatting, I'll be happy to spend time chatting. 
 
-+ *Strait to action*. If you are interested let's schedule a call. I am in GMT+8 and I am available from 7 am till 9 pm. My village has a poor Internet connection, sorry for that. There are occasional disconnections, but most of the time audio quality is good enough to practice.
-
++ *Strait to action*. If you are interested let's schedule a call. I am in GMT+8 and I am available from 11 am till 1 am.
 ## What we should practice
 
 My belief is that we should concentrate on having a positive experience. Practice
