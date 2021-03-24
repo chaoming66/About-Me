@@ -1,6 +1,6 @@
 Hi there! I am Michael from Taiwan. I like learning languages, and I often practice language exchange. I want my learning sessions to be productive both for me and for my partners. I’ve summarized my thoughts about practice below.
 
-### A short summary
+## A short summary
 
 + *Everyone has their own way of learning*. I am happy to teach you Russian/English using the approach of *your choice*. Please teach me Mandarin/Japanese using the approach which works for me. We might learn differently and that's ok.
 
@@ -8,7 +8,7 @@ Hi there! I am Michael from Taiwan. I like learning languages, and I often pract
 
 + *Strait to action*. If you are interested let's schedule a call. I am in GMT+8 and I am available from 7 am till 9 pm. My village has a poor Internet connection, sorry for that. There are occasional disconnections, but most of the time audio quality is good enough to practice.
 
-### What we should practice
+## What we should practice
 
 My belief is that we should concentrate on having a positive experience. Practice
 should be easy, so that you want to practice again and again.
@@ -27,7 +27,7 @@ Then you need to find a reward. It's hard to track your progress especially with
 
 I would say, you should find rewards in practicing itself. Find songs and listen to them regularly. Discuss topics that are interesting to you. Find a movie or watch your favorite episodes again and again. And you will notice how your comprehension improves over time.
 
-### How we can practice
+## How we can practice
 
 This mainly depends on your current language level. People often fear that
 "there will be no things to discuss and there will be moments of awkward
@@ -55,27 +55,27 @@ silence". I'll give a few strategies for different levels of proficiency:
 
    We can just agree ahead of time to discuss a given topic. Because we agreed on the topic in advance, we can research information before the session.
 
-### Which languages we can practice
+## Which languages we can practice
 
 I am learning Russian and Japanese. I can speak English and Mandarin.
 
-## English
+### English
 
 Most people gave me positive feedback about my English skills and I have several language exchange partners who practice English with me.
 
 + I have lived and worked for major corporates back at the U.S.
 
-## Chinese/Mandarin
+### Chinese/Mandarin
 
 + Mandarin is my mother tongue and I can speak very well.
 
 I am patient enough to teach people from 0. I have helped a Belarusian guy from b1 to b2. It takes patience, but you can learn it and I can help you.
  
-### Software
+## Software
 
 Any video conference app will work. I am also running a language exchange server using Discord. There are a few Russian native speakers, one Japanese native speakers and two Americans. Feel free to message me to learn more!
 
-### Frequently asked questions
+## Frequently asked questions
 
 Q. We don't know each other, I am shy to do audio/video calls.
 A. Chances are, we will never meet. We are practicing over the Internet, I am not part of your everyday Environment. The practical chance of meeting me without your own intention is 0. I don't practice chatting for language exchange so probably we will never become more familiar with each other. Just reflect on your negative feeling, and realize what is the real source of your fears. That will help me to understand that the fear has nothing to do with me. 
