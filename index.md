@@ -80,7 +80,7 @@ Q. We don't know each other, I am shy to do audio/video calls.
 A. Chances are, we will never meet. We are practicing over the Internet, I am not part of your everyday Environment. The practical chance of meeting me without your own intention is 0. I don't practice chatting for language exchange so probably we will never become more familiar with each other. Just reflect on your negative feeling, and realize what is the real source of your fears. That will help me to understand that the fear has nothing to do with me. 
 
 Q. Do you want to meet friends?
-A. I do! And I consider everyone who helps me as a friend. That's why the more we practice the better friends we are. Speaking Mandarin is part of me. And everyone who helped me to learn Mandarin has a place in my memory and in my heart.
+A. I do! And I consider everyone who helps me as a friend. That's why the more we practice the better friends we are. And everyone who helped me to learn new langauges has a place in my memory and in my heart.
 
 Q. Do you want to meet in real life?
 A. I travel quite often and I certainly will be happy to meet if we have a chance. At the same time, I am completely ok with Internet friends. Some people just popped up and then disappeared. This is completely fine and I respect their freedom ^_^
